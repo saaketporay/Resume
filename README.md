@@ -1,3 +1,3 @@
 # Resume
 
-Resume updated as of 09/17/2020
+Resume updated as of 11/28/2020
